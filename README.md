@@ -31,4 +31,4 @@ Here are some of the technologies and tools I work with:
 
 ## Get in Touch
 
-Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/pawarvivekk) or drop me an email at [pawarvivek1999@gmail.com]. Let's collaborate and make the digital world a safer place!
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/pawarvivekk) or drop me an email at pawarvivek1999@gmail.com. Let's collaborate and make the digital world a safer place!
